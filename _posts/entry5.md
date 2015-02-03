@@ -1,0 +1,4 @@
+Questions for this week:
+What was it like working remotely today? Did you miss seeing your classmates and instructors (If we may be so bold...) in person, and/or were interactions via Slack enjoyable in their own way? Was it hard to focus away from the school's space? Easier? How would you feel about working in a position where working remotely is the norm?
+
+For me, I definietely missed interacting with the classmates and having an in-person lecture. Sometimes I find it hard to focus at home when there are other outside forces acting upon me. It's nice every once in a while, but I feel I do learn best in a school-type atmosphere. I have had one job in which I worked at home remotely. It lasted about a month, and I can say I was really glad to have to go into work at my next job!
